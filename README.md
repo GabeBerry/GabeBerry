@@ -1,0 +1,6 @@
+- 🤙 Whats up, I’m @GabeBerry
+- 👀 I’m interested in concept art and indie game development.
+- 🌱 I’m currently learning how to produce 3d art and making games in unity. 
+- 💞️ I’m looking to collaborate on any indie art assests needed that are 2d. 
+- 📫 How to reach me @Gabe.Berry on Instagram or Gabe091011@gmail.com
+- 🐱‍🐉 I am just getting in to the scene would appreciate some tips!
